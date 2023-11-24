@@ -1,0 +1,1 @@
+Es Markuss Ciršs sev liktu atzimi 7, jo ,manuprat, esmu izpratis šo sarežģīto vielu un esmu gatavs doties tālāk.
